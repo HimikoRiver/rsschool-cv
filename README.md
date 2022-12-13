@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://HimikoRiver.github.io/rsschool-cv/cv
